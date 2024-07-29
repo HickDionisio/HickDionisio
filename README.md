@@ -8,5 +8,5 @@ Entra em contato comigo:
 
 https://tenor.com/pt-BR/view/tik-tok-tiktok-meme-bts-meme-crying-gif-24083908
 
-https://tenor.com/pt-BR/view/ygona-gif-19329809
+https://media1.tenor.com/m/b9ezjMii56MAAAAC/ygona.gif
 
