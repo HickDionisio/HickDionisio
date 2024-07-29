@@ -7,6 +7,4 @@ Entra em contato comigo:
 
 
 ![](https://tenor.com/pt-BR/view/tik-tok-tiktok-meme-bts-meme-crying-gif-24083908)
-
-
-<div class="tenor-gif-embed" data-postid="19329809" data-share-method="host" data-aspect-ratio="0.81875" data-width="100%"><a href="https://tenor.com/view/ygona-gif-19329809">Ygona GIF</a>from <a href="https://tenor.com/search/ygona-gifs">Ygona GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![](https://tenor.com/pt-BR/view/ygona-gif-19329809)
