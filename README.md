@@ -6,5 +6,6 @@ Entra em contato comigo:
 (19) 99210-1726
 
 
-![](https://tenor.com/pt-BR/view/tik-tok-tiktok-meme-bts-meme-crying-gif-24083908)
-![](https://tenor.com/pt-BR/view/ygona-gif-19329809)
+![_](https://tenor.com/pt-BR/view/tik-tok-tiktok-meme-bts-meme-crying-gif-24083908)
+
+![_](https://tenor.com/pt-BR/view/ygona-gif-19329809)
